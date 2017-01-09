@@ -1,0 +1,3 @@
+[Google cache missing]
+
+This month has felt quite different to the first - the newness of everything this wore off, we got much better at not being grumpy on travel days, ...

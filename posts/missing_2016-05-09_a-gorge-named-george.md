@@ -1,0 +1,3 @@
+[Google cache missing]
+
+Ok, this is a bit out of order as I haven't posted anything about Hong Kong or the first part of our time in China. Never mind, it's my blog I'll do ...

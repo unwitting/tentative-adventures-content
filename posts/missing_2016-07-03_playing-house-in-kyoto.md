@@ -1,0 +1,3 @@
+[Google cache missing]
+
+Three years ago we came to Japan for our first grown-up, 2 week mega holiday together. The first stop on that trip was Kyoto, and it was love at ...
